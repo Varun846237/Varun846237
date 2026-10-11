@@ -31,4 +31,4 @@ Computer Science & Engineering Graduate passionate about Artificial Intelligence
 
 📫 Connect With Me
 * GitHub Profile: [@Varun846237](https://github.com/Varun846237)
-* LinkedIn: linkedin.com/in/saivarunreddyadidhela
+* LinkedIn: (https://www.linkedin.com/in/saivarunreddyadidhela)
